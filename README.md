@@ -7,4 +7,5 @@ These are a few of my favorite things:
 - Bright copper kettles
 - Warm woolen mittens
 - Not editing directly on GitHub
+- My one-eyed dog
 - Dark chocolate 
