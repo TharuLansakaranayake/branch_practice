@@ -5,7 +5,7 @@ These are a few of my favorite things:
 - Cheesy garlic bread 
 - Raindrops on roses
 - Whiskers on puppies
-- Bright copper kettles
+- Bright copper wires
 - Warm woolen mittens
 - Not editing directly on GitHub
 - My one-eyed dog
